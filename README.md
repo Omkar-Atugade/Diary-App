@@ -9,5 +9,5 @@ Omkar Atugade,<br>
 Mumbai, Maharashtra, India.
 
 ## Find Me On:
-[Instagram]()<br>
-[Twitter]()
+[Instagram](https://www.instagram.com/omi_atugade/)<br>
+[Twitter](https://www.twitter.com/Atugade-Omkar)
